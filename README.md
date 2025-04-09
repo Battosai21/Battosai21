@@ -1,4 +1,6 @@
 Hi champ, thanks for stopping by.
+I am just a frustrated software engineer with a skill issue. I would rather work as an airline pilot, but I don't have the money to study that.
+Here is where I come to cry over my broken dreams. And also the place where I upload some projects from time to time.
 
 "Fortune favors the bold"
 -Virgil, The Aeneid
